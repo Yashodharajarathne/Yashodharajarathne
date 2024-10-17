@@ -29,6 +29,8 @@ When I'm not coding, I'm immersed in **music** 🎶!
 
 ## 🔗 How to reach me
 
+🌐 [Portfolio Website](https://yashodha.me)
+
 📧 yashodharajarathna@gmail.com  
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?style=flat&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/yashodha-rajarathne-93906a281?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) [![Instagram](https://img.shields.io/badge/Instagram-%23E1306C.svg?style=flat&logo=instagram&logoColor=white)](https://www.instagram.com/yashodha_rajarathne/profilecard/?igsh=MnhkYzJvOWlneW1m)
